@@ -1,0 +1,1 @@
+# Strateska-analiza-sustava
